@@ -107,7 +107,7 @@
 
 ![image](https://github.com/ShivaXXD/Laboratory-work-3/assets/162280583/535a5726-444c-4a99-8382-998ef9d10ab9)
 
-Рис.22
+
 
 
 
